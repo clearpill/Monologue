@@ -22,7 +22,7 @@ it reminds me alot of how i feel about tetris - im level 3026 at the moment
 once i complete the hardest challendges or levels and having 10 pieces left over, or over excelling it just shows me im operating or have tasks that are simply not matching my level mentally .
 that i can go even harder . 
 
-  but the thing is i dont even enjoy when something is TOO hard . its over simulating and adds even more cortisol which can jenga your whole routine .
+  but the thing is i dont even enjoy when something is TOO hard . its over stimulating and adds even more cortisol which can jenga your whole routine .
 
 I feel like im operating just below the sweet spot of equally challanging and easy to obtain . 
 
@@ -34,7 +34,7 @@ maybe i just have to let go my expectations of how this ( " should " ) feel and 
 
 when its put in perscpective of how/where ( " year ago me " ) would feel about now me, it generally helps and in that moment i truly do feel proud or shocked . 
 
-maybe this is just all from truama , but in a way it does keep me in a never ending cycle of self-improvment, which isnt nessisarily bad .
+maybe this is just all from trauma , but in a way it does keep me in a never ending cycle of self-improvment, which isnt nessisarily bad .
 
   maybe its just all perspective .
 
